@@ -1,1 +1,1 @@
-Freedom is imprtant
+Freedom is important
